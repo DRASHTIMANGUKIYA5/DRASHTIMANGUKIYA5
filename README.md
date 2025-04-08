@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DRASHTIMANGUKIYA5
-- 👀 I’m interested in FinTech Projects and Project Management  
-- 🌱 I’m currently learning SQL and Python 
+- 👀 I’m interested in  Making differene and add value 
+- 🌱 I’m currently learning Neuroscience from Dr. Andrew Huberman; majoring in Project management. 
 - 📫 How to reach me? - https://www.linkedin.com/in/drashti-mangukiya-5a926b239?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I am curious 
